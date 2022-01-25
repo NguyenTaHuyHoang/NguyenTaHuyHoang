@@ -1,5 +1,4 @@
 ### Hi guys, my nam is Huy Hoang 👋
-**0365432278/0365432278** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 I'm a student and a freelancer
 
