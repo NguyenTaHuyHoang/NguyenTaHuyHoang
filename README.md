@@ -1,6 +1,8 @@
-### Hi guys, my nam is Huy Hoang 👋
+## Hi guys, my nam is Huy Hoang 👋
 
-I'm a student and a freelancer
+# Welcome to my Gidhub ❤️
+
+## I'm a student and a freelancer
 
 - 🔭 I’m currently study in Ho Chi Minh City University of Science (VNU- HCMUS)
 - 🌱 I wanna get a fresher job ASAP
