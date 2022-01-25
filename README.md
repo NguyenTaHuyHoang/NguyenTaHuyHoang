@@ -1,4 +1,4 @@
-## **Hi guys, my nam is Huy Hoang** 👋
+## **Hi guys, my name is Huy Hoang** 👋
 
 # Welcome to my Gidhub ❤️
 
