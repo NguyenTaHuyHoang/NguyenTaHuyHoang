@@ -1,6 +1,6 @@
 ## **Hi guys, my name is Huy Hoang** 👋
 
-# Welcome to my Gidhub ❤️
+# Welcome to my Github ❤️
 
 ## I'm a student and a freelancer
 
