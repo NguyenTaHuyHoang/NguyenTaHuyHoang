@@ -5,7 +5,7 @@
 
 💞️: I am ready to accept interesting cooperation opportunities in this field.
 
-📫: You can contact me at nthh01082002@gmail.com. Let's connect together and create something amazing!
+📫: You can contact me at nthh01082002@gmail.com. Let's connect together and create something amazing! 
 
 ## 🌐Socials
 [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/https://www.facebook.com/ng.tahhoang/) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/nguyentahuyhoang/) 
