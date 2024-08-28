@@ -1,7 +1,7 @@
 # 💫About Me :
 👋: Hello, I'm Nguyen Ta Huy Hoang
 
-🏫: Currently I am studying at Ho Chi Minh City University of Natural Sciences.
+🏫: Currently I am studying at Ho Chi Minh City University of Natural Sciences. 
 
 💞️: I am ready to accept interesting cooperation opportunities in this field.
 
