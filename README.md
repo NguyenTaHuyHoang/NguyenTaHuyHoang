@@ -1,4 +1,4 @@
-# 💫About Me : 
+# 💫About Me: 
 👋: Hello, I'm Nguyen Ta Huy Hoang
 
 🏫: Currently I am studying at Ho Chi Minh City University of Sciences.  
