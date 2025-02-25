@@ -1,7 +1,7 @@
 # 💫About Me:
 👋: Hello, I'm Nguyen Ta Huy Hoang
 
-🏫: Currently I am studying at Ho Chi Minh City University of Sciences.  
+🏫:  I have recently graduated with a Bachelor’s degree in Information Technology and have a deep passion for technology. 
 
 💞️: I am ready to accept interesting cooperation opportunities in this field.
 
