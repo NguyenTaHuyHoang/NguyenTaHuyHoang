@@ -1,4 +1,4 @@
-# 💫About Me:
+# 💫About Me: 
 👋: Hello, I'm Nguyen Ta Huy Hoang
 
 🏫:  I have recently graduated with a Bachelor’s degree in Information Technology and have a deep passion for technology. 
